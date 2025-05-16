@@ -36,7 +36,7 @@ Dengan latar belakang ini, saya mampu bekerja mandiri maupun dalam tim, dan teru
 
 ## 📫 How to reach me
 - Email: crismonosadi@gmail.com
-- LinkedIn: [[linkedin.com/in/crismonosadi](https://linkedin.com/in/crismonosadi](https://www.linkedin.com/in/krismono-sadi-a81b33237))
+- LinkedIn: [Krismono Sadi](https://www.linkedin.com/in/krismono-sadi-a81b33237)
 - Twitter: [@crismonosadi](https://twitter.com/crismonosadi)
 
 ---
